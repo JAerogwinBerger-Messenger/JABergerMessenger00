@@ -7,5 +7,5 @@ First repository for college courses
 ### I will be planning a project to work with English Language Learners for my TESOL Minor
 #### In this project I will be learning about how to teach, assess and contribute to someone learning the English language. Creating a sequence of events much like code I will need to develop a teaching plan for future students.
 ### I am also going to be contributing to my twitch and youtube channels.
-#### I play a variety of games but ultimatelly am looking to find a career in game devolopment. The biggest hurdle is scheduling time for content and continuing to study for quality education.
+#### I play a variety of games but ultimately am looking to find a career in game devolopment. The biggest hurdle is scheduling time for content and continuing to study for quality education. Spending up to 20 hours a week sounds possible at time of writing 13/Jan/2026
 ##### Links to socials in Bio
